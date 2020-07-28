@@ -6,7 +6,8 @@ Contact me if you like: silveltman@hotmail.com
 
 Folow me if you like: 
  -  [Dribbble](https://dribbble.com/silveltman)
- -  Insta: silveltman
- -  Twitter: sil_veltman
+ -  [Instagram](https://www.instagram.com/silveltman)
+ -  [Twitter](https://twitter.com/SilVeltman)
+ -  [LinkedIn](https://www.linkedin.com/in/sil-v-b19639134/)
 
 Cheers 🥵
